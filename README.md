@@ -3,4 +3,4 @@
 
 *Download today and join the buzz!*
 
-**ICS2OI Project**
+**ICS2OI (Grade 10 Computer Studies) Project**
